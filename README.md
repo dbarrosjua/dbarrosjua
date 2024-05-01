@@ -1,4 +1,4 @@
-### OIE! Bem-vindo ao perfil da dBarros 🏆🎀🎓
+### OIE! Bem-vindo ao perfil da ***dBarros*** 🏆🎀🎓
 
 Meu nome é Júlia mas todos me chamam de dBarros.
 
